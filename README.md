@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on chasing the bag
 - 📫 How to reach me : Carrier pidgeon
 - 😄 Pronouns: Him
-- ⚡ Fun fact: Barack Obama built a hospital in Afghanistan in 2015! Look up "Obama Kunduz Hospital" for mroe details
+- ⚡ Fun fact: Barack Obama built a hospital in Afghanistan in 2015! Look up "Obama Kunduz Hospital" for more details
 
 <!---
 HugeLorand/HugeLorand is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
